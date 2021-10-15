@@ -7,3 +7,4 @@
 6. Then you need to be aware that the top line of the rectangle goes above therooftop of the building (so it's taller than the house)
 7. Placement: the rectangle is placed a bit more right than the pivotal line of the building.
 8. Voila! You have a weird mix of shapes now.
+![composition 3](img/03-comp.png)

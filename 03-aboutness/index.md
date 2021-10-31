@@ -1,6 +1,7 @@
-# Alexandra Kakushina
+<h1 align="center">Alexandra Kakushina</h1>
+
 ## What you should know about me
-<h1 align="center">I`m a graphic designer who aims for the simplicity but strives to push it even further through the ordered chaos.</h1>
+<h3 align="left">I`m a graphic designer who aims for the simplicity but strives to push it even further through the ordered chaos.</h3>
 
 - [View Selected Case Study](case-study.md)
 

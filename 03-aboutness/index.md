@@ -6,7 +6,7 @@
 
 ## What you should know about me
 <h3 align="left">I`m a graphic designer who aims for the simplicity but strives to push it even further through the ordered chaos.</h3>
-Let me explain what I meant by that: I like working with the geometry and letters. 
+Let me explain what I meant by that: I like working with the geometry and letters. Lately I have discovered different ways of placing the objects so that it looks both: unordinary but pleasant. Scattered and exploded but sorted and neat. There is a huge charm in working with letters for it can truly be the main part of the composition without having to be mixed with other objects.
 
 
 - [View Selected Case Study](case-study.md)

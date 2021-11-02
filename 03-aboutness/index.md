@@ -8,6 +8,7 @@
 <h3 align="left">I`m a graphic designer who aims for the simplicity but strives to push it even further through the ordered chaos.</h3>
 Let me explain what I meant by that: I like working with the geometry and letters. 
 
+
 - [View Selected Case Study](case-study.md)
 
 ## My story

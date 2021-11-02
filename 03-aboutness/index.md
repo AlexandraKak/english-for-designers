@@ -1,5 +1,6 @@
 <h1 align="center">Alexandra Kakushina</h1>
 
+![Alt me.](img/job.jpg)
 
 # Hey! Glad to see you on my page.
 

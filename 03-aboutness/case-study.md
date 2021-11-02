@@ -16,7 +16,7 @@ The task was to make a simple and legible manual that will correspond to Jetsurf
 
 
 
-The only requirement from the brand was to use Acumin Pro font which gave me a huge artistic freedom.
+It was a pleasure for me to work with Jetsurf company. Everyone has been responsive, outgoing and clear about their vision of the final product. The only requirement from the brand was to use Acumin Pro font which gave me a huge artistic freedom.
 
 
 

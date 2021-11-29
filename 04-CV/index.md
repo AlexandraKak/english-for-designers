@@ -32,6 +32,8 @@ sasha.721@mail.ru| +420777657611 | Prague
 * Indesign
 * FL Studio
 * Visual Studio Code
+* Blender
+* Microsoft Office
 
 ## Experience
 * #### Right Technology - 2020, Prague

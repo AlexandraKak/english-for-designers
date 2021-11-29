@@ -24,6 +24,15 @@ sasha.721@mail.ru| +420777657611 | Prague
 * German A2
 * Korean A1
 
+## Skills
+* Figma
+* Photoshop
+* Lightroom
+* Illustrator
+* Indesign
+* FL Studio
+* Visual Studio Code
+
 ## Experience
 * #### Right Technology - 2020, Prague
 A+ content

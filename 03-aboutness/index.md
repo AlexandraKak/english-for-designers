@@ -1,8 +1,8 @@
 <h1 align="center">Alexandra Kakushina</h1>
 
 # Hey! Glad you came by.
-Pssst, this picture was taken by me
 ![Alt me.](img/ke.jpg)
+(P.S. I am not really into meditating but it felt like a right moment to try it for a second)
 
 
 ## What you should know about me

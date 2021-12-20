@@ -34,5 +34,5 @@ Jetsurf has launched it`s product "Airy" motorized skateboards along with the ma
 
 ![Alt b&w sketches.](img/1.jpg) ![Alt b&w sketches.](img/2.jpg) ![Alt b&w sketches.](img/3.jpg) ![Alt b&w sketches.](img/4.jpg) 
 
-# If you are willing to see the whole project, please, send me an email and I will gladly share the rest of the manual with you.
+### If you are willing to see the whole project, please, send me an email and I will gladly share the rest of the manual with you.
 

@@ -1,8 +1,8 @@
 <h1 align="center">Alexandra Kakushina</h1>
 
-# Hey! Glad to see you on my page.
+# Hey! Glad you came by.
 Pssst, this picture was taken by me
-![Alt me.](img/job.jpg)
+![Alt me.](img/ke.jpg)
 
 
 ## What you should know about me

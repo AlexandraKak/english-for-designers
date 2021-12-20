@@ -5,6 +5,21 @@
 sasha.721@mail.ru | +420777657611 | Prague
 
 ## Skills
+
+* Packaging design
+* Visual identity design
+* Writing
+* Working in teams
+* Typography
+* Photography
+* Social media content 
+* HTML, Java Script, CSS
+* Illustration
+
+
+
+## Tools
+
 * Figma
 * Photoshop
 * Lightroom
@@ -16,13 +31,20 @@ sasha.721@mail.ru | +420777657611 | Prague
 * Microsoft Office
 
 ## Experience
-* #### Right Technology - 2020, Prague
-A+ content
-Banner design
-
-
 * #### Jetsurf Electric - 2020-2021, Prague
-Manuals for motorized skateboards
+Worked on the creation of manuals for motorized skateboards. The whole work included typography skills, illustrating skills and basics of graphic design.
+
+* #### Right Technology - 2020, Prague
+The creation of the A+ content for the Amazon: banner design, typograhy, photography editing
+
+* #### Assenzio hotel - 2018, Prague
+Receptionist 
+
+* #### Beeline - 2014, Rostov-on Don, Russia
+Consultant in the technology communications company
+
+
+
 
 
 ## Education
@@ -35,8 +57,7 @@ Manuals for motorized skateboards
 
 
 ## About
-* Flexible
-* Attentive to details
+I am a flexible person that keeps in touch with the client 24/7 and ready to discuss any modifications. Attentiveness to details helps me to get the best out of the project so it corresponds to all the requirements of the client.
 * Creative
 * Active
 * Reliable

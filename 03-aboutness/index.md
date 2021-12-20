@@ -1,7 +1,9 @@
 <h1 align="center">Alexandra Kakushina</h1>
 
 # Hey! Glad you came by.
-![Alt me.](img/ke.jpg) style=centerme
+![Alt me.](img/ke.jpg) centerme
+
+
 (P.S. I am not really into meditating but it felt like a right moment to try it for a second)
 
 

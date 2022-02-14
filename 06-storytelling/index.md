@@ -5,6 +5,9 @@
 Hi! You probably don't know me yet but that's why I am here - I'd like to change it. Let me share my story with you.
 
 
+![v](https://user-images.githubusercontent.com/92374927/153878942-244311d2-41c2-4043-ba55-57c0e6f3f14c.JPEG)
+
+
 Getting on the path I am on right now wasn't exactly the easiest thing to do. I was torn apart by the mountains of ideas what I could possibly be and who I want to be. But every time when I felt like I am finally doing something that is truly my thing – soon enough I would realize I can't stand it and it's time to move on – time to try something else. And here I am – working on the eye-catching pictures that would help people sell their products.
 Not going to lie, I still sometimes feel doubtful about this field I chose but these “sometimes”s usually get erased by “but actually…”s  and all the doubts just vanish.
 

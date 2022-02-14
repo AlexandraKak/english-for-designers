@@ -1,9 +1,12 @@
+
 # How did I get to a point where I can scriblle and get paid for that?
 
 
-# INTRO
+## INTRO
+<strong>
 Howdy! You probably don't know me yet but hey, that's why I am here - it`s the time that we change it. Let me tell you my story.
 
+  
 
 ![v](https://user-images.githubusercontent.com/92374927/153878942-244311d2-41c2-4043-ba55-57c0e6f3f14c.JPEG)
 

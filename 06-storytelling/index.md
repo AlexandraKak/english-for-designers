@@ -8,6 +8,8 @@ Hi! You probably don't know me yet but that's why I am here - I'd like to change
 Getting on the path I am on right now wasn't exactly the easiest thing to do. I was torn apart by the mountains of ideas what I could possibly be and who I want to be. But every time when I felt like I am finally doing something that is truly my thing – soon enough I would realize I can't stand it and it's time to move on – time to try something else. And here I am – working on the eye-catching pictures that would help people sell their products.
 Not going to lie, I still sometimes feel doubtful about this field I chose but these “sometimes”s usually get erased by “but actually…”s  and all the doubts just vanish.
 
+![b](https://user-images.githubusercontent.com/92374927/153860780-aa01547c-b0ef-41d4-a0fd-554e534d923a.jpg)
+
 
 ## When and how did it start?
 There is no precise answer I can find if diving into my childhood memories. My whole life I gravitated to art. It`s not like I was an inveterate visitor of museums or galleries but I did enjoy good drawings, pleasing melodies, nicely composed videos or outfits. All of that have always been giving me the greatest inspiration and a will to develop myself.

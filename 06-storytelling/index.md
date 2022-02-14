@@ -1,8 +1,8 @@
-# How did I get to a point where I can scriblle and get money for that?
+# How did I get to a point where I can scriblle and get paid for that?
 
 
-## INTRO
-Hi! You probably don't know me yet but that's why I am here - I'd like to change it. Let me share my story with you.
+# INTRO
+Howdy! You probably don't know me yet but hey, that's why I am here - it`s the time that we change it. Let me tell you my story.
 
 
 ![v](https://user-images.githubusercontent.com/92374927/153878942-244311d2-41c2-4043-ba55-57c0e6f3f14c.JPEG)
@@ -21,7 +21,15 @@ There is no precise answer I can find if diving into my childhood memories. My w
 If to think about it, I could say it all started with dancing. I went dancing when I was just 3 years old and kept on working on my movements for over a decade since then. I tried Russian traditional dances, hip-hop, breakdance and ended up switching to a singer. But then again – I couldn`t decide if I want it to be academic singing or Jazz or rap. So I went for all the options at once. Then I played piano and after – guitar. 
 
 
+![n](https://user-images.githubusercontent.com/92374927/153886030-aa7ee3c9-3499-4d37-a295-1b68ef91c893.jpg)
+
+
+
 Somehow, not being able to process my past or to take into account my “artistic” hobbies I happened to have chosen the university of economics. There I got to know real hell. And it had nothing to do with the lack of analytical skills. In fact, I have always loved math and I could say it was mutual. So the problem was rather with the feeling of hatred towards what I was doing. There I was lucky enough to meet one person who showed me the world of multimedia. 
+
+
+![3](https://user-images.githubusercontent.com/92374927/153888577-81bef3f7-eab4-4234-94c6-5759bbed0584.jpg)
+
 
 
 Pushing the “fast forward” button we are skipping on the part with how I ended up choosing graphic design because it was quite spontaneous (yet it was a direct hit).

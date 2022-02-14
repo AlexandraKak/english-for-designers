@@ -72,4 +72,6 @@ Even though sometimes it was rather awkward
 
 https://user-images.githubusercontent.com/92374927/153859697-16965277-249e-43b1-875a-c8a183b2370c.mp4
 
+After certain amount of time I moved to a different university. There I started getting better results in graphic design. Getting to like what I'm doing was the biggest motivation to keep pushing it through. Pushing it through the critics, through the frame of basics, through my own laziness and fear of failure (not to sound too dramatic).
+
 

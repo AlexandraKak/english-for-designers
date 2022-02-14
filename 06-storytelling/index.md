@@ -33,7 +33,30 @@ Somehow, not being able to process my past or to take into account my “artisti
 
 
 Pushing the “fast forward” button we are skipping on the part with how I ended up choosing graphic design since it was quite spontaneous (yet it was a direct hit).
-Day by day I was learning how to "be creative", how to be patient with myself since all my groupmates were ahead of me while I kept falling behind. The reason was crystal clear - I was surrounded by people who knew what they want and why they were here. It was people with years of experience in filming, proper video editing, painting, designing etc. Meanwhile I was a newbie. At first I wasn`t succeeding much. All i knew - my favourite subject was photography. I would spend 5 hours every day "hunting" for a good shot with an old camera in order to make an "alright" photo. And despite the fact I was so devoted, I didn`t make it to the list of best students - my camera let me down. Unsatisfied and demotivated I stopped doing something I had loved for years and swtiched onto design. Having a huge atelophobia I wasn`t moving as fast as I wish I would. Tabling tasks out of fear of not making it good enough and being stuck on the same level was unnerving for me. The starting point for me was a project in which we were ought to build a campaign for a new clothing brand Riversign. We spent weeks planning and filming video commercial which happened to be great (for freshmen).
+Day by day I was learning how to "be creative", how to be patient with myself since all my groupmates were ahead of me while I kept falling behind. The reason was crystal clear - I was surrounded by people who knew what they want and why they were here. It was people with years of experience in filming, proper video editing, painting, designing etc. Meanwhile I was a newbie. At first I wasn't succeeding much. All i knew - my favourite subject was photography. I would spend 5 hours every day "hunting" for a good shot with an old camera in order to make an "alright" photo. 
+
+
+
+
+![Untitled-1](https://user-images.githubusercontent.com/92374927/153907594-6359c7dc-4807-4e70-8e1c-23af6f5d460d.jpg)
+
+
+
+
+And despite the fact I was so devoted, I didn't make it to the list of best students - my camera let me down. Unsatisfied and demotivated I stopped doing something I had loved for years and swtiched onto design. 
+
+
+
+
+![12](https://user-images.githubusercontent.com/92374927/153909207-22d28253-0840-47ee-8903-723efa6db6af.jpg)
+
+
+
+
+
+
+
+Having a huge atelophobia I wasn`t moving as fast as I wish I would. Tabling tasks out of fear of not making it good enough and being stuck on the same level was unnerving for me. The starting point for me was a project in which we were supposed to build a campaign for a new clothing brand "Riversign". We spent weeks planning and filming video commercial which came out great (for freshmen).
 
 
 https://user-images.githubusercontent.com/92374927/153859270-a19a4eba-bd5b-464e-ab80-83da354b751f.mp4

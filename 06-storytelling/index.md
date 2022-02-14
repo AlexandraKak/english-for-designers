@@ -75,3 +75,27 @@ https://user-images.githubusercontent.com/92374927/153859697-16965277-249e-43b1-
 After certain amount of time I moved to a different university. There I started getting better results in graphic design. Getting to like what I'm doing was the biggest motivation to keep pushing it through. Pushing it through the critics, through the frame of basics, through my own laziness and fear of failure (not to sound too dramatic).
 
 
+
+
+![13](https://user-images.githubusercontent.com/92374927/153912460-ff2d4b3b-f620-42ea-b2ab-af9ff2999d4b.jpg)
+
+
+
+
+![dh1](https://user-images.githubusercontent.com/92374927/153912484-e9b714ab-6c4e-4481-b416-02c14750f056.jpg)
+
+
+
+![234](https://user-images.githubusercontent.com/92374927/153913529-8fbffaf2-f1ed-4136-81a2-5868480f5373.jpg)
+
+
+
+![df](https://user-images.githubusercontent.com/92374927/153914351-dda7e8b4-fe6c-455a-a0a9-731f113f3d0e.jpg)
+
+
+Lately I got drawn into the world of 3D design which for some reason feels more familiar than 2D one.
+
+
+
+
+![234567](https://user-images.githubusercontent.com/92374927/153916350-f36067e5-4604-43a9-b96d-a4383233f37f.jpg)

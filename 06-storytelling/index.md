@@ -21,21 +21,21 @@ Not going to lie, I still sometimes feel doubtful about this field I chose but t
 There is no precise answer I can find if diving into my childhood memories. My whole life I gravitated to art. It`s not like I was an inveterate visitor of museums or galleries but I did enjoy good drawings, pleasing melodies, nicely composed videos or outfits. All of that have always been giving me the greatest inspiration and a will to develop myself.
 
 
-If to think about it, I could say it all started with dancing. I went dancing when I was just 3 years old and kept on working on my movements for over a decade since then. I tried Russian traditional dances, hip-hop, breakdance and ended up switching to a singer. But then again – I couldn't decide if I want it to be academic singing or Jazz or rap. So I went for all the options at once. Then I played piano and after – guitar. Then I went for drawing...Then poem composing...Then writing...I could keep listing all my momentary passions but I'd rather show you something more meaningful.
+If to think about it, I could say it all started with dancing. I went dancing when I was just 3 years old and kept on working on my movements for over a decade since then. I tried Russian traditional dances, hip-hop, breakdance, a year of ballroom dancing even! Was the most boring one by the way. But after all I ended up switching to a singer. But then again – I couldn't decide if I want it to be academic singing or Jazz or rap. So I went for all the options at once. Then I played piano and after – guitar. Then I went for drawing...Then poem composing...Then writing...I could keep listing all my momentary passions but I'd rather show you something more meaningful.
 
 
 ![n](https://user-images.githubusercontent.com/92374927/153886030-aa7ee3c9-3499-4d37-a295-1b68ef91c893.jpg)
 
 
 
-Somehow, not being able to process my past or to take into account my “artistic” hobbies I happened to have chosen the university of economics. There I got to know real hell. And it had nothing to do with the lack of analytical skills. In fact, I have always loved math and I could say it was mutual. So the problem was rather with the feeling of hatred towards what I was doing. There I was lucky enough to meet one person who showed me the world of multimedia. 
+Somehow, not being able to process my past or to take into account my “artistic” hobbies I happened to have chosen the university of economics. There I got to know real hell. And it had nothing to do with the lack of analytical skills. In fact, I have always loved math and I could say it was mutual. So the problem was rather with the feeling of hatred towards what I was doing. There I was lucky enough to meet one person who showed me the world of multimedia. We were taking the same class of german language. At some point we went out for a coffee and he gave me some spicy details about the faculty he was on - all the pros and cons, possible ups and downs i might experience there and after that I took some time to make up my mind.
 
 
 ![3](https://user-images.githubusercontent.com/92374927/153888577-81bef3f7-eab4-4234-94c6-5759bbed0584.jpg)
 
 
 
-Pushing the “fast forward” button we are skipping on the part with how I ended up choosing graphic design since it was quite spontaneous (yet it was a direct hit).
+Pushing the “fast forward” button we are skipping on the part with how I ended up choosing graphic design since it was quite spontaneous - sort of "why not? It can't get worse than it is now" (yet it was a direct hit).
 Day by day I was learning how to "be creative", how to be patient with myself since all my groupmates were ahead of me while I kept falling behind. The reason was crystal clear - I was surrounded by people who knew what they want and why they were here. It was people with years of experience in filming, proper video editing, painting, designing etc. Meanwhile I was a newbie. At first I wasn't succeeding much. All i knew - my favourite subject was photography. I would spend 5 hours every day "hunting" for a good shot with an old camera in order to make an "alright" photo. 
 
 

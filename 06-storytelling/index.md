@@ -45,7 +45,7 @@ Day by day I was learning how to "be creative", how to be patient with myself si
 
 
 
-Sometimes I would look like a homeless person on acid - taking weird positions in weird locations with weird objects and even swearing sometimes when getting a bad shot. But I didnt't mind it much.
+Sometimes I would look like a homeless person on acid - taking weird positions in weird locations with weird objects and even swearing when getting a bad shot. But I didnt't mind it much.
 And despite the fact I was so devoted, I didn't make it to the list of best students - my camera let me down. Unsatisfied and demotivated I stopped doing something I had loved for years and swtiched onto design. 
 
 

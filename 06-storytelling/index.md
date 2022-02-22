@@ -93,6 +93,8 @@ After certain amount of time I moved to a different university. There I started 
 
 
 
+
+
 ![df](https://user-images.githubusercontent.com/92374927/153914351-dda7e8b4-fe6c-455a-a0a9-731f113f3d0e.jpg)
 
 
@@ -104,7 +106,7 @@ Lately I got drawn into the world of 3D design which for some reason feels more 
 ![234567](https://user-images.githubusercontent.com/92374927/153916350-f36067e5-4604-43a9-b96d-a4383233f37f.jpg)
 
 
-
+https://user-images.githubusercontent.com/92374927/155107732-22246651-7048-49a3-905c-0818a89f54fc.mp4
 
 
 There is still a long way ahead of me. You know what they say, sky's the limit and mine hasn't been reached yet. 

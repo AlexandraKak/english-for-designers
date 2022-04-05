@@ -9,4 +9,4 @@ The main component of this work is a thorough analysis of the music festival in 
 festival, PR, graphic design, visual identity, branding, marketing, social media, marketing campaign
 
 ## Presentation
-Work in progress...[But you can peek a bit](https://github.com/AlexandraKak/english-for-designers/tree/main/Materials)
+Work in progress...[But you can peek a bit](https://github.com/AlexandraKak/english-for-designers/blob/main/Materials/index.md)

@@ -14,3 +14,46 @@ Before introducing new visual style for the AMF, there are several points that a
 - "EDM" stands for "electronic dance music", which simply means "electronic dance music". This genre is the one that is being introduced to the fans of the festival and not only does it include subtle ambient tunes, but also house music, techno, drum and bass and dubstep, where the tempo reaches up to 200 BPM (beats per minute) - beats per minute. Such music is created for long dance nights, which are most often held in clubs or outside at festivals, to which the upward tempo and appropriate perception of rhythm in the soundtracks contribute.
 - After a couple interviews with EDM producers, I have found out that for most people electronic music associates with a "gradient", "energy", "trance", "erotics", "space" and "ecstasy".
 - The reason why EDM genre is now in top 4 most popular music genres is because of the dopamine that is being released to our brain when the beat drops. When we listen to music, this hormone is released into the brain thus improving our happiness. Thanks to this simple action, EDM makes it possible to transform a sad mood into a joyful one.  
+Based on these points, I managed to create a new visual style that can fully match such a popular and known music genre as EDM.
+
+![logomanual](https://user-images.githubusercontent.com/92374927/163874351-936890c5-88b3-4d93-b3fa-9899382a3ed5.png)
+
+
+
+I started off with the logotype that is supposed to be used for most of the promotional materials. 
+
+
+
+![amf_logo](https://user-images.githubusercontent.com/92374927/163874292-5cc03941-f24b-4333-9d69-cb14ae4e4d54.png)
+
+When choosing colors for the visual style of the AMF festival, I mainly referred to the psychology of colors and the theory of color perception. 
+• Purple refers to mysticism and "trance" and represents not only ambition and luxury but also creativity.
+• Orange means joy and enthusiasm and conveys an energetic mood.
+• Red is the color of passion and maximum efficiency ("make the most of it"), it's the color of loud and bright emotions. Red, as reported in various sources, is the color of stimulus and triumph.
+These colors have been used in most of the elements of the visual identity starting with logotype, moving onto the main element:
+
+
+![3crosses](https://user-images.githubusercontent.com/92374927/163875351-3026a16b-d39e-44cd-9d2e-f48636034cbf.png)
+
+
+
+Proceeding with the gradient on the background of the promotional materials such as posters:
+
+![5617655](https://user-images.githubusercontent.com/92374927/163875473-9db96592-ea60-4f4a-8e13-2ee47abbe1b9.jpg)
+![Free Roadside Outdoor Bus Stop Billboard MockUp For Advertisement](https://user-images.githubusercontent.com/92374927/163875501-35e66166-b767-47f9-89b4-4d7bd12d2905.jpg)
+
+
+Or flyers:
+
+
+![ghj](https://user-images.githubusercontent.com/92374927/163875616-1ec93ed8-2c32-4682-bd4f-fb54a4331019.jpg)
+
+
+ On banners:
+ 
+ ![Banner](https://user-images.githubusercontent.com/92374927/163875727-e8d3ab6a-068c-409c-8c46-a60dba43303e.jpg)
+![hjk](https://user-images.githubusercontent.com/92374927/163875757-9ab6b8e0-a186-48e6-b9c7-29bea8686eba.jpg)
+
+
+Almost every propagational material has the same background which consists of moon texture as the first layer (since the new motto is "Dopamine to the moon" which is a refernce to the release of the dopamine during the process of listening to EDM). The second layer is a gradient made of 3 colors that are used as primary colors for the visial identity: purple, orange and red.
+ 

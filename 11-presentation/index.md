@@ -4,7 +4,13 @@ Three years of studying graphic design have resulted into the analysis of the vi
 
 
 Every day, not only new methods of promoting goods, services and entertainment appear, but also changes the perception of visual elements and as well as perception of their combinations. Fashion, technologies, aesthetics are in a constant process of transformation, which means that many things become outdated, flavorless and bland for the average modern man. Therefore, the AMF needs a "transformation", as the visual style of this event has not changed since its inception in 2013.
+
+
 ![fb-share](https://user-images.githubusercontent.com/92374927/163870079-371ce6aa-b1e6-4f1b-ad52-291486afd7e8.jpg)
 
 ## The history of the festival
 In 2013, ID&T and ALDA, Denmark's largest dance music producers, held a festival to celebrate the 25th anniversary of electronic music in the Netherlands. The first AMF festival attracted 25,000 visitors who enjoyed the music of 30 different DJs. Since then, the festival has become an annual tradition with a large number of loyal fans, whose number has been growing steadily, as a result of which the festival has had to rent three concert halls at once and extend the festival to 5 days.
+Before introducing new visual style for the AMF, there are several points that are essential to be mentioned in order to have a better picture of the festival itself.
+- "EDM" stands for "electronic dance music", which simply means "electronic dance music". This genre is the one that is being introduced to the fans of the festival and not only does it include subtle ambient tunes, but also house music, techno, drum and bass and dubstep, where the tempo reaches up to 200 BPM (beats per minute) - beats per minute. Such music is created for long dance nights, which are most often held in clubs or outside at festivals, to which the upward tempo and appropriate perception of rhythm in the soundtracks contribute.
+- After a couple interviews with EDM producers, I have found out that for most people electronic music associates with a "gradient", "energy", "trance", "erotics", "space" and "ecstasy".
+- The reason why EDM genre is now in top 4 most popular music genres is because of the dopamine that is being released to our brain when the beat drops. When we listen to music, this hormone is released into the brain thus improving our happiness. Thanks to this simple action, EDM makes it possible to transform a sad mood into a joyful one.  

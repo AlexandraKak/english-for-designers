@@ -57,3 +57,40 @@ Or flyers:
 
 Almost every propagational material has the same background which consists of moon texture as the first layer (since the new motto is "Dopamine to the moon" which is a refernce to the release of the dopamine during the process of listening to EDM). The second layer is a gradient made of 3 colors that are used as primary colors for the visial identity: purple, orange and red.
  
+Most of the merch materials are minimalistic since the only elements that are used for them are: logotype and the name of the festival.
+
+
+![Pin_Button_2](https://user-images.githubusercontent.com/92374927/163876685-b7e3bc8d-ad79-4b4e-8af5-169b1dae3bd6.jpg)
+
+
+![Isolated_WMockup](https://user-images.githubusercontent.com/92374927/163876784-967c9292-992b-4a37-9efe-3890a2c31945.png)
+
+
+![6](https://user-images.githubusercontent.com/92374927/163876808-706a3b2e-0a0e-4e87-ba8e-d5fcb4fc04e9.jpg)
+
+![5073435](https://user-images.githubusercontent.com/92374927/163876820-44ad22cf-2eed-4b7f-8757-57c57c5ff67d.jpg)
+
+
+
+AMF have a weak communication strategy when it comes to social media - posts apear once or twice a month with nothing but the picture from the previous festival. There is no communication with fans as well as no competitions or news. Apart from it, the design of their pages has also become outdated.
+
+
+
+<img width="2000" alt="Instagram Post Mockup 2019" src="https://user-images.githubusercontent.com/92374927/163877346-6abe253e-0036-4c78-8feb-64b4a9a25b87.png">
+
+
+
+![dark_template_youtube](https://user-images.githubusercontent.com/92374927/163877255-789e1010-897f-4272-aabd-2ab0de5c5692.jpg)
+
+
+
+![gallery](https://user-images.githubusercontent.com/92374927/163877416-5b22a01c-8ec8-47b1-be3f-f9fd73e5c2ce.png)
+
+
+## Conclusion 
+
+AMF is a popular festival whose fan base grows exponentially, hence it needed a renovation of the visual identity in order to keep up with the times. My project is an example of that full renovation that might bring more popularity to a festival thanks to the bright colors and a good and solid concept.
+
+
+
+

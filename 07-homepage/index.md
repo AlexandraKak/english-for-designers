@@ -13,6 +13,7 @@
 - [Case study](https://github.com/AlexandraKak/english-for-designers/blob/a2eefd37ab9d0cadbab0d4f2733c91fd9704d5ee/03-aboutness/case-study.md) - Check out one of my projects 
 - [CV](https://github.com/AlexandraKak/english-for-designers/blob/a2eefd37ab9d0cadbab0d4f2733c91fd9704d5ee/04-CV/index.md) - In case you want to hire me
 - [Storytelling](https://github.com/AlexandraKak/english-for-designers/blob/a2eefd37ab9d0cadbab0d4f2733c91fd9704d5ee/06-storytelling/index.md) - More precise information about me and my past along with the experince I got. 
+- [Final presentation](https://github.com/AlexandraKak/english-for-designers/blob/main/11-presentation/index.md) - final thesis with it's thorough description 
 
 ## Takeaways:
 1. The article doesn`t neccessarily have to be complex. 

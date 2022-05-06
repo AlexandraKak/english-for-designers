@@ -87,6 +87,13 @@ AMF have a weak communication strategy when it comes to social media - posts ape
 ![gallery](https://user-images.githubusercontent.com/92374927/163877416-5b22a01c-8ec8-47b1-be3f-f9fd73e5c2ce.png)
 
 
+
+
+
+https://user-images.githubusercontent.com/92374927/167115900-851d198d-3dc3-4b03-aa7f-2b41cc7f4790.mp4
+
+
+
 ## Conclusion 
 
 AMF is a popular festival whose fan base grows exponentially, hence it needed a renovation of the visual identity in order to keep up with the times. My project is an example of that full renovation that might bring more popularity to a festival thanks to the bright colors and a good and solid concept.
